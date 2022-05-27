@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vokuno
+- 👀 I’m interested in guys
+- 🌱 I’m currently learning how to  talk to women
+- 💞️ I’m looking to collaborate on adult intercourse
+- 📫 How to reach me vokuno#7777
